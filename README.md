@@ -2,4 +2,6 @@ Public welfare firmware, public welfare assistance, the world's largest DMAER co
 
 telegram:https://t.me/QuantumStealthWorld
 
+请加入telegram后使用！
+
 XF delta Valorant CSGO
