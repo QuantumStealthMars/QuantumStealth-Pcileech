@@ -1,5 +1,7 @@
 Public welfare firmware, public welfare assistance, the world's largest DMAER concentration camp
 
+公益固件、公益辅助、全球DMAER集中营!
+
 telegram:https://t.me/QuantumStealthWorld
 
 QuantumStealth-隐藏防标记固
